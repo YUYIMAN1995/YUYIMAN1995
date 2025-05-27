@@ -2,7 +2,7 @@
 - 👀 I’m interested in 散步看小说睡觉 
 - 🌱 I’m currently learning 已经本科毕业刚买属于我的第一台电脑正在学习计算机基础知识
 - 💞️ I’m o-o谁来选我啊呜呜
-- 📫 How to reach me 抖音账号YuYiMan629邮箱yuyimani9@hotmail.com 
+- 📫 How to reach me 邮箱yuyimani9@hotmail.com 
 - 😄 Pronouns: How are you 
   
 
