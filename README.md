@@ -3,7 +3,7 @@
 - 🌱强大的互联网给我分配个结婚对象吧暂时没孩子准备找对象生宝宝　MyIs5love
 - 💞️ MY BABY MY LOVE 
 - 📫  me 邮箱yuyimani9@hotmail.com 电话； 19528845126 
-- 😄 Pronouns: 我想自己永远不会回辽宁丹东市了
+- 😄 Pronouns:我的灵魂和肉体早就不在辽宁省丹东市
   
 
 
